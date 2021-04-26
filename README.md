@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Tim (@obdude)
-- 👀 I’m interested in open source, software development, linux, efficient blogging, professional affiliate marketing, nature, & much more
+- 👀 I’m interested in open source & linux, software dev, efficient blogging, professional affiliate marketing, nature, & much more
 - 🌱 I’m currently learning essentialism.
 - 💞️ I’m looking to collaborate on any exciting project!
 - 📫 tim [at] obdude.com is how you can reach me. :)
