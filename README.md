@@ -12,7 +12,7 @@ I love simple things. :)
 
 📫 tim [at] obdude.com is how you can reach me...
 
-[Check out obdude.com](https://obdude.com) if you like to learn all about affiliate marketing! :)
+**[Check out obdude.com](https://obdude.com)** if you like to learn all about online business & affiliate marketing! :)
 <!---
 obdude/obdude is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
