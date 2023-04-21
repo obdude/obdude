@@ -2,7 +2,7 @@
 
 I’m Tim. Nice to e-meet you! 😊
 
-📫 tim.ikels@gmail.com is how you can reach me...
+📫 [this](https://timikels.com/links) is how you can reach me...
 
 Thanks!
 
