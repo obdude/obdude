@@ -2,7 +2,7 @@
 
 I’m Tim. Nice to e-meet you! 😊
 
-📫 [this](https://timikels.com/links) is how you can reach me...
+📫 [This](https://timikels.com/links) is how you can reach me...
 
 Thanks!
 
