@@ -2,11 +2,11 @@
 
 I’m Tim. Nice to e-meet you! 😊
 
-📫 [This](https://timikels.com/links) is how you can reach me...
+I'm a creator, publisher, and marketer of digital products and services.
+
+📫 [This](https://timikels.com/contact) is how you can reach me...
 
 Thanks!
 
-Cheers,  
+Stay awesome,  
 Tim
-
-**P.S. Get Instant Access To ==> [3 Professional Courses ($0.00) Here](https://timikels.com/free) <==**
