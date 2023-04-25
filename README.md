@@ -18,3 +18,5 @@ Let me know if you think I can help you.
 
 Stay awesome,  
 Tim
+
+<meta name="msvalidate.01" content="D96D99EFBCF5278267054D8483BDF1FE" />
