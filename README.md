@@ -6,7 +6,7 @@ Thank you for checking out my GitHub profile page.
 
 ## Who is Tim Ikels?
 
-I'm a creator, publisher, and marketer of digital products and services.
+I'm a creator, publisher, and marketer of helpful digital products and services.
 
 [📫 This](https://timikels.com/contact) is how you can reach me.
 
