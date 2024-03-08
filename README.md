@@ -12,7 +12,7 @@ On [TimIkels.com 🌐](https://timikels.com) you can see what I'm currently work
 
 Oh, and [here you can find my blog ✍️](https://timikels.com/blog/)!
 
-I’m open to strategic partnerships, so let’s chat!
+Want to work together? Hit me up.
 
 **Thank you!**
 
