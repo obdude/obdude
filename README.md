@@ -10,7 +10,9 @@ I'm a creator, publisher, and marketer of simple, helpful digital products and s
 
 On [TimIkels.com 🌐](https://timikels.com) you can see what I'm currently working on.
 
-Let me know if you think I can help you with your idea/project/business!
+Oh, and [here you can find my blog ✍️](https://timikels.com/blog/)!
+
+I’m open to strategic partnerships, so let’s chat!
 
 **Thank you!**
 
