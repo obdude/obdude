@@ -1,6 +1,6 @@
-👋 Hey,
+Hey,
 
-I’m Tim. Nice to e-meet you! 😊
+I’m Tim. Nice to e-meet you! 👋
 
 Thank you for checking out my GitHub profile page.
 
