@@ -4,7 +4,7 @@ Nice to e-meet you! 👋
 
 **Thank you** for checking out my GitHub profile.
 
-**- [About - Who is Tim Ikels?](https://about.ikels.org)**
+- [About - Who is Tim Ikels?](https://about.ikels.org)**
 
 Want to work together? Hit me up. 💬
 
