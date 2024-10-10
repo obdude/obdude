@@ -4,7 +4,7 @@ Nice to e-meet you! 👋
 
 **Thank you** for checking out my GitHub profile.
 
-- **[About - Who is Tim Ikels?](https://about.ikels.org)**
+- **[Tim Ikels - Creator of The Automatic Lead Machine](https://ikels.org)**
 
 Want to work together? Hit me up. 💬
 
