@@ -1,16 +1,16 @@
-## Hi there 👋
+# Hey, it's Tim here...
 
-<!--
-**obdude/obdude** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**Thank you** for stopping by! 👋
 
-Here are some ideas to get you started:
+I'm the creator of 📖 **The Automatic Lead Machine**
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+I can help you 🧲 **Generate Evergreen Leads With Simple, Short Books** 📚
+
+🤷 **About - Who is Tim Ikels? ► [about.ikels.org](https://about.ikels.org)**
+
+😌 **Predictable Lead Geneation ► [alm.ikels.org](https://alm.ikels.org)**
+
+Reach out if you like to! 😊
+
+Best,  
+Tim
