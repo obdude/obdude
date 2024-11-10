@@ -8,7 +8,7 @@ I can help you 🧲 **Generate Evergreen Leads With Simple, Short Books** 📚
 
 🤷 **About - Who is Tim Ikels? ► [about.ikels.org](https://about.ikels.org)**
 
-😌 **Predictable Lead Geneation ► [alm.ikels.org](https://alm.ikels.org)**
+😌 **Predictable Lead Generation ► [alm.ikels.org](https://alm.ikels.org)**
 
 Reach out if you like to! 😊
 
