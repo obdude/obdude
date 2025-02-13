@@ -1,8 +1,10 @@
-**Hey, I’m Tim!** 👋 Thanks for stopping by.  
+**Tim Ikels | Creator of The Automatic Lead Machine**
 
-I help you build an **Automatic Lead Machine** with just ONE simple, short book!
+Hey, I’m Tim! 👋 Thanks for stopping by.
 
-📖 Get the Book: [alm.ikels.org](https://alm.ikels.org)  
-🌎 More: [ikels.org](https://ikels.org)
+I help you generate **24/7 buyer-leads** with one simple, short book.
 
-Let’s make business growth **simple, reliable, and scalable!**
+📖 Get the book: [book.ikels.org](https://book.ikels.org/)  
+🔍 Learn more: [ikels.org](https://ikels.org/)
+
+**Grow smarter, not harder.** 🌱
