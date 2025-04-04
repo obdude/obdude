@@ -1,8 +1,6 @@
-**Tim Ikels | Creator of The Automatic Lead Machine**
+**Tim Ikels | Author of The Automatic Lead Machine: Generate Buyer-Leads 24/7 With One Short Book**
 
 Hey, I’m Tim! 👋 Thanks for stopping by.
-
-I help you generate **24/7 buyer-leads** with one simple, short book.
 
 📖 Get the book: **[book.ikels.org](https://book.ikels.org/)**  
 🔍 Learn more: **[ikels.org](https://ikels.org/)**
