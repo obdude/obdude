@@ -2,7 +2,7 @@ Hey, I’m Tim 👋
 
 **Thanks for stopping by!**
 
-==> https://ikels.org
+==> ikels.org
 
 Best,  
 Tim
