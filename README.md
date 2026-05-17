@@ -16,7 +16,9 @@
 ### 📘 Sichtbar zwischen den Meeren
 Mein Ansatz für regionale Dominanz ist in meinem Buch **"Sichtbar zwischen den Meeren"** gebündelt. Es ist mein Fundament für jedes strategische Gespräch mit Geschäftsführern in Schleswig-Holstein. 
 
-Wer als Marke lokal relevanter, größer und vertrauenswürdiger wirken will, braucht einen Gegenpol zur digitalen Hektik. Einen, der sich nicht wegklicken lässt.  
+Wer als Marke lokal relevanter, größer und vertrauenswürdiger wirken will, braucht einen Gegenpol zur digitalen Hektik.  
+Einen, der sich nicht wegklicken lässt.
+
 Ich helfe Unternehmen dabei, den "Aufmerksamkeits-Alltag" ihrer Zielgruppe zu entschlüsseln und sich physisch und digital als unangefochtener Platzhirsch zu positionieren.
 
 ### ⚙️ My "Strategy Stack" (Methodik)
