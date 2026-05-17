@@ -1,6 +1,6 @@
 <h1 align="center">Moin! Ich bin Tim Ikels 👋⚓</h1>
 
-<h3 align="center">Autor von <i>"Sichtbar zwischen den Meeren"</i> | Berater für regionale Sichtbarkeit in Schleswig-Holstein.</h3>
+<h3 align="center">Autor von <i>"Sichtbar zwischen den Meeren"</i> | Berater für regionale Sichtbarkeit in SH</h3>
 
 <div align="center">
   <a href="https://timikels.com"><img src="https://img.shields.io/badge/Website-TimIkels.com-0055FF?style=for-the-badge&logo=googlechrome&logoColor=white" alt="Website" /></a>
@@ -14,7 +14,7 @@
 > Mein Ziel: **Unternehmen unübersehbar machen. Dort, wo das echte Leben stattfindet.**
 
 ### 📘 Sichtbar zwischen den Meeren
-Mein Ansatz für regionale Dominanz ist in meinem Buch **"Sichtbar zwischen den Meeren"** gebündelt. Es ist mein Fundament für jedes strategische Gespräch mit Geschäftsführern in SH. 
+Mein Ansatz für regionale Dominanz ist in meinem Buch **"Sichtbar zwischen den Meeren"** gebündelt. Es ist mein Fundament für jedes strategische Gespräch mit Geschäftsführern in Schleswig-Holstein. 
 
 Wer als Marke lokal relevanter, größer und vertrauenswürdiger wirken will, braucht einen Gegenpol zur digitalen Hektik. Einen, der sich nicht wegklicken lässt.  
 Ich helfe Unternehmen dabei, den "Aufmerksamkeits-Alltag" ihrer Zielgruppe zu entschlüsseln und sich physisch und digital als unangefochtener Platzhirsch zu positionieren.
